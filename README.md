@@ -1,3 +1,3 @@
 ## About Me
 
-My name is Zulfahmi Azka, a 16yo self-taught "programmer" from Indonesia.
+My name is Zulfahmi Azka, a 16yo Islamic High School student and a self-taught "programmer" from Indonesia.
