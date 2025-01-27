@@ -10,7 +10,7 @@ It really is just a hobby... I'm more focused on the physics olympiad :P
 - nothing.
 
 ## Achievement
-- Juara 1 KSM 2024 Tingkat Kota
+- Juara 1 KSM 2024 Beregu Tingkat Kota Metro
 
 (Pernah masuk ke OSN-P 2024 bidang Fisika dan KSM-P, tapi nggak lolos ke OSN dan KSM tingkat Nasional 😓.)
 (I hope 2025 will truly be my year)
