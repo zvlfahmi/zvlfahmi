@@ -11,6 +11,8 @@ It really is just a hobby... I'm more focused on the physics olympiad :P
 
 ## Achievement
 - Juara 1 KSM 2024 Beregu Tingkat Kota Metro
+- No 4 OSN-K 2024 Fisika Tingkat Kota Metro
+- EEA 2024 LCT Juara 2 Universitas Lampung
 
 (Pernah masuk ke OSN-P 2024 bidang Fisika dan KSM-P, tapi nggak lolos ke OSN dan KSM tingkat Nasional 😓.)
 (I hope 2025 will truly be my year)
