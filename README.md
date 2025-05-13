@@ -11,6 +11,7 @@ It really is just a hobby... I'm more focused on the physics olympiad :P
 
 ## Achievement
 - Juara 1 KSM 2024 Beregu Tingkat Kota Metro
+- Bronze Medal KOSSMI 2025 Fisika Level 4
 - No 4 OSN-K 2024 Fisika Tingkat Kota Metro
 - EEA 2024 LCT Juara 2 Universitas Lampung
 
