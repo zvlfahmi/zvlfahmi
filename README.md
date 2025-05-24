@@ -10,10 +10,10 @@ It really is just a hobby... I'm more focused on the physics olympiad :P
 - nothing.
 
 ## Achievement
-- Juara 1 KSM 2024 Beregu Tingkat Kota Metro
-- Bronze Medal KOSSMI 2025 Fisika Level 4
-- No 4 OSN-K 2024 Fisika Tingkat Kota Metro
-- EEA 2024 LCT Juara 2 Universitas Lampung
+- Bronze Medal KOSSMI 2025 Fisika Level 4 (Nasional)
+- EEA 2024 LCT Juara 2 Universitas Lampung (Provinsi)
+- Juara 1 KSM 2024 Beregu Tingkat Kota Metro (Kota)
+- No 4 OSN-K 2024 Fisika Tingkat Kota Metro (Kota)
 
 (Pernah masuk ke OSN-P 2024 bidang Fisika dan KSM-P, tapi nggak lolos ke OSN dan KSM tingkat Nasional 😓.)
 (I hope 2025 will truly be my year)
